@@ -8,7 +8,11 @@ This is our first Github Practice.
 
 
 
+
 Hey, I am Jourdan
+
+Hi, I am Montez.
+
 
 
 Hi; this is Dan
@@ -35,8 +39,9 @@ Chance was here.
 
 Dawn says hi, and also that trans rights are human rights!
 
-Khaliq Hatmal is really really cute but don't tell him I said that.
 
+
+Khaliq Hatmal is really really cute but don't tell him I said that.
 
 
 
