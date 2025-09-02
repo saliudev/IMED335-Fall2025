@@ -16,3 +16,5 @@ Chance was here.
 
 
 Dawn says hi, and also that trans rights are human rights!
+
+Khaliq Hatmal is really really cute but don't tell him I said that.
