@@ -4,3 +4,6 @@ Classroom Practice Project
 Hi, Everyone,
 
 This is our first Github Practice.
+
+Hey, I am Jourdan
+
